@@ -1,0 +1,19 @@
+
+
+## Computerspil og dopamin
+
+* [Hans Henrik Knoop](https://pure.au.dk/portal/da/persons/hans-henrik-knoop(309c5cfb-5430-4dc1-aa41-5c80651b924b).html)
+
+* [Smitter vold i computerspil af på dit barn?](https://www.dr.dk/nyheder/viden/naturvidenskab/smitter-vold-i-computerspil-af-paa-dit-barn?fbclid=IwAR0RQwYZEEmlMXiDeCYLF2fjk5drNOwQJAql3WKmGUpRbEWmJRnJConigMg)
+
+* [Computerspilsforsker modtager prestigefyldt pris](https://www.itu.dk/om-itu/presse/nyheder/2019/computerspilsforsker-modtager-presigefyldt-pris?fbclid=IwAR1z79chCt9wAMH8t0p1Bim3YbEbxtvW0w8U0WZ7q0TEtQeS3p0VqBwosIk)
+
+
+## Overvågning og demokrati links
+
+* [prosa, Analyse: Facebooks forbrydelse er selve deres forretningsmodel](https://www.prosa.dk/artikel/analyse-facebooks-forbrydelse-er-selve-deres-forretningsmodel/?fbclid=IwAR1jN0TmV59OG6Wdz-e4xgJVhccfLHzAfANqw6gaXGz6ZDo0h7gTxKedSEA)
+
+* [Prosa, bladet](https://www.prosa.dk/fileadmin/user_upload/PROSAbladet/2017/Prosabladet_20170505.pdf?fbclid=IwAR16beGXoaYKz59tnW3lBcJHhrYz5w8EupgnxqfnIMrU98ZPwxjiWXy84n4)
+* [Venstre, facebook annoncer](https://www.facebook.com/ads/library/?active_status=all&ad_type=all&country=DK&impression_search_field=has_impressions_lifetime&q=Venstre%2C%20Danmarks%20Liberale%20Parti&view_all_page_id=21465928829)
+* [Online Disinformation and Political Discourse: Applying a Human Rights Framework](https://www.chathamhouse.org/publication/online-disinformation-and-political-discourse-applying-human-rights-framework?fbclid=IwAR16beGXoaYKz59tnW3lBcJHhrYz5w8EupgnxqfnIMrU98ZPwxjiWXy84n4)
+* [Dit privatliv for et elløbehjul](https://techst.dk/dit-privatliv-for-et-elloebehjul/?fbclid=IwAR3dbQwBLXJmASCp2jz_5rXHcUFjom4Injt4PP44fT8aI8wvXC6hhty-QrU)
